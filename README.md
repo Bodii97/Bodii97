@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bodii97
-- 👀 I’m interested in Biking , Hiking 
+- 👀 I’m interested in Biking & Meditation 
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on with anyone
 - 📫 How to reach me : https://twitter.com/BodiiWorld
